@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pritom-Malik
-- 👀 I’m interested in Graphic Designing & Python Programming
+- 👀 I’m interested in Graphic Designing
 - 🌱 I’m currently learning Adobe Photoshop & Illustrator
 - 💞️ I’m looking to collaborate on My Learnings
 - 📫 How to reach me Keep my Email kmsaifulmalik22@gmail.com
